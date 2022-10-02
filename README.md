@@ -1,2 +1,2 @@
-# im-dead-
+# im-dead-💀
 Esoteric language based on a highly meaningful emoticon
